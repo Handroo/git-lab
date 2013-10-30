@@ -13,4 +13,4 @@ GitHub: ancb2000
 
 Lab session : Wed. 10am 
 
-![alt tag](http://octodex.github.com/stormtroopocat)
+![alt tag]([URL=http://s403.photobucket.com/user/timetorocck/media/img.png.html][IMG]http://i403.photobucket.com/albums/pp112/timetorocck/img.png[/IMG][/URL])
